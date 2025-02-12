@@ -1,4 +1,4 @@
-#Ashley Madison_4950_Isabel_Capetillo
+Ashley Madison_4950_Isabel_Capetillo
 
 ## creo que la decisión de los hackers fue correcta aunque causo sufrimiento a muchas personas, creo que el bien que salio de esto fue mayor. 
 ##La filtración expuso a una empresa que se beneficiaba de fomentar comportamientos poco eticos como la infidelidad y puso en evidencia como muchas plataformas no protegen la privacidad de sus usuarios. 
